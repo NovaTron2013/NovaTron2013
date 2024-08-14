@@ -3,7 +3,7 @@
 - 🌱 I’m currently doing my bachelors about Computer Science in Sathyabama
 - 💞️ I’m looking for Peace and happiness
 - 📫 How to reach me: saravanan281234@gmail.com
-- 😄 Pronouns: Show/Them/Tiddies 😏
+- 😄 Pronouns: Show/Them/Yummers 😏
 - ⚡ Fun fact: I get Depressed easily and think about ending it all on a daily basis
 
 <!---
